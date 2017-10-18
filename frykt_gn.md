@@ -1,1 +1,0 @@
-I duck ur mom
